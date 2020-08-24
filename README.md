@@ -1,3 +1,3 @@
 # corrupting-minecraft
 
-Hey Everyone on this file i will be modding Minecraft
+Hey Everyone on this file I will be Modding Minecraft
